@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...vishvajeet0867@gmail.com
 - 😄 Pronouns: ...he
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ..::--HACKER BREAKS RULE--::
 
 <!---
 vishvajeet67/vishvajeet67 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
